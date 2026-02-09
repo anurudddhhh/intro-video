@@ -2,6 +2,8 @@
 
 I'm a **third-year Computer Science student** with a strong interest in technology and building solutions to real-world problems.
 
+https://drive.google.com/file/d/1EVmiGuax4hjTUTznC-DBfcjMZY33bnA3/view?usp=share_link
+
 ---
 
 ## 🚀 About Me
